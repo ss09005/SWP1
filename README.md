@@ -1,5 +1,2 @@
-20210273 suyeonParK
-
-
-
-
+20210273 suyeonPark
+Kokmin Univ. Russian
